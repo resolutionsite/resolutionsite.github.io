@@ -1,0 +1,1 @@
+# resolutionsite.github.io
